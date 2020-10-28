@@ -1,6 +1,6 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://xv01.xyz
+##### :heart: :point_right: 【地址一】 ：https://mtbpub.com
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：fenxuetv@gmail.com
 
